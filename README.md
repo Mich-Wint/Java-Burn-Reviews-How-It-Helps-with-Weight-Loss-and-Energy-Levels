@@ -1,5 +1,4 @@
 
-![Java Burn 1](https://github.com/user-attachments/assets/4d64d01b-9650-42f4-a98c-39c31f13e739)
 Java Burn is a dietary supplement that has gained attention for its unique approach to weight loss and fat burning. Marketed as a metabolism-boosting formula, this product is designed to be added to your morning coffee. The idea behind Java Burn is simple yet effective: it promises to enhance the weight loss effects of coffee by improving fat burning, boosting energy, and accelerating metabolism.
 
 But does it really work? In this review, we will break down the ingredients, benefits, usage, price, and provide our final thoughts on whether Java Burn is worth trying.
